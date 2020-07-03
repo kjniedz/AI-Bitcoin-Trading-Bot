@@ -1,0 +1,1 @@
+# Easy-Loot-AI
